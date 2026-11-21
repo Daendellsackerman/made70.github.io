@@ -2,4 +2,4 @@
 Mungkin disini adalah keseharianku dalam meneliti segala sesuatu yang menarik. bagiku.
 
 
-apa yang terjadi apabila
+-> "Utilization of Unused Items in Renewable Energy Creation"
